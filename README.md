@@ -1,0 +1,8 @@
+#about 
+With over 8 years of unwavering dedication to excellence, Logica Training School of Aviation has established itself as a premier institution in the world of aviation education. 
+Our commitment to nurturing the future of aviation professionals is at the core of our identity. Throughout our journey, we have been privileged to guide and empower more than 500 students,
+propelling them into promising careers within renowned airlines and airports across the globe. We take immense pride in being an essential stepping stone for aspiring individuals who dream of soaring through the skies,
+and we're elated to have played a pivotal role in their success stories. At Logica,
+we believe in fostering not only technical expertise but also instilling a deep sense of discipline, professionalism, and dedication in our students. 
+Our experienced and passionate team of instructors are committed to providing top-notch training, ensuring that our graduates are prepared to meet the dynamic challenges of the aviation industry.
+<a href="https://www.logicatrainingschool.in/">Aviation Academy in Chennai</a>, <a href="https://www.logicatrainingschool.in/air-hostess-training-in-chennai/">Air Hostess Training in Chennai</a>
